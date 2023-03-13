@@ -1,4 +1,4 @@
-# GROUP-4-
+# GROUP-4-MEMBERS
 Kenneth Muiga Hsb213-0188/2021
 Bianca Lubambe Hsb213-0208/2021
 Darius Gambo   Hsb213-0126/2021
